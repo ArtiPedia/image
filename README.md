@@ -1,2 +1,2 @@
 # image
-sumber image https://artipedia.site
+sumber image https://administrasi.net
